@@ -1,0 +1,1 @@
+# We have so many talented people who don't make themselves public. It's not because of their will, but rather because of their fear. They are the ones who change things in the world but still due to the environment, they have been buried alive.
